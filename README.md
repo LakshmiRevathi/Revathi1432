@@ -7,7 +7,7 @@
 - 📫 How to reach me:
   - Email: srisailakshmirevathi@gmail.com
   - LinkedIn: https://www.linkedin.com/in/tekimudi-sri-sai-lakshmi-revathi-5925a62b1
-  - GitHub: 
+  - GitHub: https://github.com/Revathi1432
 - 😄 Pronouns: She/Her
 
 
